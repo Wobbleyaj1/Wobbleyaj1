@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Wobbleyaj1
+- 👋 Hi, I’m Jay
 - 👀 I’m interested in music
 - 🌱 I’m currently learning Computer Engineering at Mercer University
 - 💞️ I’m looking to collaborate on whatever!
