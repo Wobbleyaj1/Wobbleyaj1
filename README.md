@@ -1,8 +1,8 @@
 - 👋 Hi, I’m Jay
-- 👀 I’m enjoy playing music
+- 👀 I enjoy playing music
 - 🌱 I’m currently learning Computer Engineering at Mercer University
 - 💞️ I’m looking to collaborate on whatever!
-- 📫 How to reach me: 770-787-4021
+- 📫 How to reach me: 770-787-4021 or jessenipper@gmail.com
 - 😄 Pronouns: He/Him
 
 <!---
